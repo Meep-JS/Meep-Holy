@@ -1,6 +1,6 @@
-Holy Unblocker is the best unblocker to evr exist!
+Holy Unblocker is the best unblocker to ever exist!
 
-Supports:
+It Supports:
 Youtube.com
 Discord.com
 Google.com
